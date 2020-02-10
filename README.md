@@ -1,2 +1,2 @@
 # digiyantra
-https://trickkas.com/
+
